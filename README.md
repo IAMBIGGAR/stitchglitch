@@ -1,5 +1,6 @@
 # [IAMBIGGAR]'s Digital Portfolio - [School Year]
 
+[Avatar](https://readyplayer.me/gallery/65e644b5374014375e4602ad-tmaz2Ujpeg)
 ## 1. Introduction:
    - Brief introduction about the student, their interests, and goals for the year.
 
